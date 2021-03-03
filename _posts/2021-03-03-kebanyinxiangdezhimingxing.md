@@ -5,6 +5,8 @@ Author: 望北之川
 categories: 
 tags: [TSN,ME,刻板印象系列]
 comments: true
+toc: true
+pinned: true
 --- 
 
 ### ABO，Enigma·Mark / Alpha·Eduardo
