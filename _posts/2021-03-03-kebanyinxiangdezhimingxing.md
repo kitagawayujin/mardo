@@ -8,14 +8,12 @@ comments: true
 toc: true
 pinned: true
 --- 
-ABO Enigma·Mark /  Alpha·Eduardo  
-*Enigma的二设来自于日漫，Alpha二次发育变成Enigma*   
-*E可以强迫A像O那样发晴，也可以强行标记A*
+ABO Enigma·Mark /  Alpha·Eduardo；Alpha二次发育变成Enigma，E可以强迫A像O那样发晴，也可以强行标记A。
 <br><br/>
 **Summary：哈佛时代的Eduardo深信不疑Mark是个omega，一直认为他应该被保护，结果当然是全美国都知道了，Facebook的CEO一脚就把自己的合伙人踢出公司。
 三年后，Mark再次找上Eduardo，他说他想要一个标记。**
 <br><br/>
-Warning：有我们可怜的花花傻乎乎把马总看作omega的各种奇怪想法和滤镜，并不是EM哦。
+**Warning：有我们可怜的花花傻乎乎把马总看作omega的各种奇怪想法和滤镜，并不是EM哦。**  
 
 #### 【1】  
 
