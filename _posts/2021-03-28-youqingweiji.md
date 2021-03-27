@@ -8,7 +8,7 @@ tags: [TSN,ME]
 comments: true
 --- 
 
-summary：Eduardo和Mark在比尔·盖茨的演讲上勾搭了一个男孩和一个女孩，在洗手间时，Mark意外地嫉妒起隔壁让Eduardo发出呻吟的男孩，于是在回H33的路上，Mark提议要跟Eduardo尝试做一些快乐的事情。
+Eduardo和Mark在比尔·盖茨的演讲上勾搭了一个男孩和一个女孩。在洗手间时，Mark意外地嫉妒起隔壁让Eduardo发出呻吟的那个亚裔男孩，于是在回H33的路上，他提出要跟Eduardo尝试做一些快乐的事情——而这毫无疑问会影响他们之间的友情。
 
 # 友情危机
 
