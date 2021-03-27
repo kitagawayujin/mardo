@@ -10,7 +10,8 @@ comments: true
 
 **Summary：Enigma Mark / Alpha Eduardo。泡夜店一时爽，绯闻火葬场。自从Eduardo嘴贱造谣Mark是omega后，现在全美国不但因为误会Mark是omega而怜惜起硅谷这位铁血暴君，甚至还觉得Eduardo是个渣男。**
 
-###【1】####
+<br><br/>
+【1】
 
 “宝贝，我给你一个忠告，”Eduardo对柔若无骨地靠在自己身上的漂亮omega认真地说：
 <br><br/>
@@ -158,7 +159,7 @@ Mark沉默地冷冷看了他一眼，标记带来的威压让Eduardo不由自主
 **“你可以从我的alpha怀里滚开了吗？”**
 <br><br/>
 
-###【2】
+【2】
 
 *“Wardo，我有件事必须向你坦白。”Mark认真地说。*
 
@@ -305,7 +306,7 @@ Eduardo慌忙矢口否认:“什么……不，我不认为我快到发情期了
 好吧，他看上去气得不轻，Mark烦恼地想，alpha发情期前都这么暴躁的吗？
 <br><br/>
 
-###【3】
+【3】
 
 Eduardo怒气冲冲地把自己关进洗手间洗漱。
 
@@ -368,9 +369,9 @@ Eduardo抬头：“笑什么？”
 
 就连迪士尼最初的十个公主，也全部都是omega：
 
-被继母迫害的美丽omega逃入森林，最后被alpha王子所救； 
-沉睡的omega公主被英俊的alpha王子吻醒； 
-凭借水晶鞋，alpha王子找到了一见钟情的omega姑娘； 
+被继母迫害的美丽omega逃入森林，最后被alpha王子所救；  
+沉睡的omega公主被英俊的alpha王子吻醒；  
+凭借水晶鞋，alpha王子找到了一见钟情的omega姑娘；  
 omega小人鱼无法把匕首插入心爱的alpha的胸膛，最后自愿变成了清晨的泡沫……等等等等。
 
 经典系列里的AO配就更是数不胜数了，比如007，每一部都要给强壮的邦德搭配美丽的omega，信息素带来的性张力简直能让一整个电影院的观众发情。
@@ -387,14 +388,14 @@ Mark被Eduardo造谣成omega这事儿，Facebook公关部还讨论了整整一�
 于是Mark瞬间就被塑造成了美国新时代omega典范，无数o权主义者都声称，从Mark身上看到了omega的无限可能性：
 <br><br/>
 
-*谁说omega一定要漂亮温柔取悦alpha？* 
-*谁说omega不能上常春藤？* 
-*谁说omega一定要相A教子放弃自己的事业？* 
-*看看Mark Zuckerberg，* 
-*他不漂亮，也不拾掇自己，那又怎么样？* 
-*他不温柔，甚至脾气暴躁，哪又怎么样？* 
-*让所有取悦alpha的omega教条全都见鬼去吧！* 
-*MarkZuckerberg说：我是omega，我定义自己的人生！* 
+*谁说omega一定要漂亮温柔取悦alpha？*  
+*谁说omega不能上常春藤？*  
+*谁说omega一定要相A教子放弃自己的事业？*  
+*看看Mark Zuckerberg，*  
+*他不漂亮，也不拾掇自己，那又怎么样？*  
+*他不温柔，甚至脾气暴躁，哪又怎么样？*  
+*让所有取悦alpha的omega教条全都见鬼去吧！*  
+*MarkZuckerberg说：我是omega，我定义自己的人生！*  
 <br><br/>
 
 这段话被打了#markzuckerberg#和#omega生而骄傲#的tag迅速火了起来。
