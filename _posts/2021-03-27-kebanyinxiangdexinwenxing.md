@@ -1,16 +1,16 @@
 ---
 layout: post
-title: 刻板印象的新闻性
+title: 【TSN/ME】刻板印象的新闻性（EABO）
 date: 2021-03-27
 Author: 望北之川
 categories: 
-tags: [TSN, ME,刻板印象系列]
+tags: [TSN,ME,刻板印象系列]
 comments: true
 --- 
 
 **Summary：Enigma Mark / Alpha Eduardo。泡夜店一时爽，绯闻火葬场。自从Eduardo嘴贱造谣Mark是omega后，现在全美国不但因为误会Mark是omega而怜惜起硅谷这位铁血暴君，甚至还觉得Eduardo是个渣男。**
 
-####【1】
+###【1】####
 
 “宝贝，我给你一个忠告，”Eduardo对柔若无骨地靠在自己身上的漂亮omega认真地说：
 <br><br/>
