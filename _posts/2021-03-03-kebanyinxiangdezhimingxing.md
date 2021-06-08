@@ -5,9 +5,8 @@ Author: 望北之川
 categories: 
 tags: [TSN,ME,刻板印象系列]
 comments: true
-toc: true
-pinned: true
 --- 
+
 ABO Enigma·Mark /  Alpha·Eduardo；Alpha二次发育变成Enigma，E可以强迫A像O那样发晴，也可以强行标记A。
 <br><br/>
 **Summary：哈佛时代的Eduardo深信不疑Mark是个omega，一直认为他应该被保护，结果当然是全美国都知道了，Facebook的CEO一脚就把自己的合伙人踢出公司。
