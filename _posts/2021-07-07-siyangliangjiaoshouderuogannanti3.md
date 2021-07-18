@@ -4,7 +4,7 @@ title: 【TSN/ME】饲养两脚兽的若干难题 3
 date: 2021-07-07
 Author: 望北之川
 categories: 
-tags: [TSN,ME]
+tags: [TSN,ME,人鱼系列]
 comments: true
 --- 
 Summary：Eduardo觉得自己捡到的是世界上最聪明、最温柔、最耐心的两脚兽。Mark会烤好吃的鱼，会耐心地教他说人类的语言，还能迅速理解他用贫乏的人类语言说出来的词不达意的话。但是小人鱼还是觉得饲养两脚兽，每天都会碰到新的难题！
