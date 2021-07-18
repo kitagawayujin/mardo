@@ -4,7 +4,7 @@ title: 【TSN/ME】饲养两脚兽的若干难题 4
 date: 2021-07-18
 Author: 望北之川
 categories: 
-tags: [TSN,ME,刻板印象系列]
+tags: [TSN,ME,人鱼系列]
 comments: true
 --- 
 Summary：人鱼Eduardo今天的新烦恼：两脚兽这种生物怎么这么不讲信用呢？收了鱼送的礼物，却不打算和鱼在一起？
