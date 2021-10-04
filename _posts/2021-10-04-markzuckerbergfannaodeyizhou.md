@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 【TSN/ME】马克·扎克伯格烦恼的一周
+title: 【TSN/ME】马克·扎克伯格崩溃的一周
 date: 2021-10-04
 Author: 望北之川
 categories: 
