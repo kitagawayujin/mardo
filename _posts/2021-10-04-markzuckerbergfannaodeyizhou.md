@@ -7,7 +7,7 @@ categories:
 tags: [TSN,ME,短篇]
 comments: true
 --- 
-Summary：Mark健身房被袭“鸡”事件。《克里斯蒂操碎了心》的姐妹篇。
+Summary：Mark健身房被袭“鸡”事件及其后续。《克里斯蒂操碎了心》的姐妹篇。
 <br><br/>
 
 
