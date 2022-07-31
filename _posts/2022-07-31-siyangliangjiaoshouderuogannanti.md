@@ -4,7 +4,7 @@ title: 【TSN/ME】饲养两脚兽的若干难题 8
 date: 2022-07-31
 Author: 望北之川
 categories: 
-tags: [TSN,ME,饲养两脚兽的若干难题]
+tags: [TSN,ME,人鱼系列]
 comments: true
 --- 
 Summary：Mark愤怒地发现他的小人鱼被一群渔民捉住并且即将卖给水族馆。CEO必须在水族馆得到Eduardo之前，把Eduardo买下来。
